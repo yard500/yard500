@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yard500
-- 🌱 I’m currently learning engineering and expecting to be a T person.
+- 🌱 I’m currently learning civil engineering and expecting to bring new insight to tranditional engineering field.
 - 💞️ I’m looking to collaborate on data related projects.
 - 📫 How to reach me: email me via ciciwryang@163.com
 
